@@ -1,18 +1,4 @@
-# Research
-
-78 ra 
-88
-
-7
-
-#
-
-
-cm
-tc
-thinu 
-
-stomach pain thaggindi
-ok tc 77 thinnava now eating. mutton 
+# Researc
 
 8
+mutton thinu thinu baga thini rest tesuko
