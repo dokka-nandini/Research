@@ -13,3 +13,6 @@ tc
 thinu 
 
 stomach pain thaggindi
+ok tc 77 thinnava now eating. mutton 
+
+8
