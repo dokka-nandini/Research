@@ -1,4 +1,15 @@
 # Research
 
-77 ok tc nenu church lo unna bye tc thinnu health ok na thinnava 
-anything msg me 8
+78 ra 
+88
+
+7
+
+#
+
+
+cm
+tc
+thinu 
+
+stomach pain thaggindi
