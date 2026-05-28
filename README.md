@@ -1,4 +1,3 @@
 # Research
 
-ok ec  going church start 77 
-nenu ammamma nv thinnava tc health ok na tc 8
+77 always with you 
