@@ -3,3 +3,6 @@
 what happened tell ec 5c 77 
 don't worry i will pray gn
 amen 7
+
+
+gm thinnu office ki po tc
