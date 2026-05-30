@@ -23,3 +23,4 @@ hello R🚀 *Looking for Trained Fresher Profiles*
 
 📌 As informed earlier, resumes will not be shortlisted if candidates have not mentioned their training and institute details in their resumes.
 tc 8 77
+tmr memu cancel so combination or mrg gn 8
