@@ -25,3 +25,5 @@
 
 
 i apply may be i will come tmr 77 
+
+amd join group also i will come tmr 77
