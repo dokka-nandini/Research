@@ -58,7 +58,7 @@ for this prepare prompt ChatGPT 8
 
 
 
-resume ahh
+resume ahh no 2:45 train ok bye tc 7
 
 
 
