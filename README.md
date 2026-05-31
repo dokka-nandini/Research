@@ -27,7 +27,7 @@ combination train or mrg emo theliyadhu tmr iwill msg u tc gn 8
 
 
 
-
+Karnataka express 8 delay adi 2pm ki atp and 6:40 ksR vastha
 
 
 
