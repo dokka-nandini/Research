@@ -23,11 +23,7 @@ hello R🚀 *Looking for Trained Fresher Profiles*
 
 📌 As informed earlier, resumes will not be shortlisted if candidates have not mentioned their training and institute details in their resumes.
 then when
-combination train or mrg emo theliyadhu tmr iwill msg u tc gn 8
-
-
-
-Karnataka express 8 delay adi 2pm ki atp and 6:40 ksR vastha
+combination ok
 
 
 
