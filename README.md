@@ -22,7 +22,7 @@ hello R🚀 *Looking for Trained Fresher Profiles*
 ⏰ The process will be closed today at 2:00 PM. Kindly share resumes before 2:00 PM.
 
 📌 As informed earlier, resumes will not be shortlisted if candidates have not mentioned their training and institute details in their resumes.
-then when
+then when memu cancelled
 combination ok
 
 
