@@ -1,4 +1,4 @@
-78 light c 8 7 8 5 8c 7c 🚀 *Looking for Trained Fresher Profiles*
+77 tc don't c pls 8 gn thinnava 7🚀 *Looking for Trained Fresher Profiles*
 
 *Job Code: RN*
 
