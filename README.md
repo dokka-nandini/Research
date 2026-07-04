@@ -15,7 +15,7 @@ hello R🚀 *Looking for Trained Fresher Profiles*
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. all ok 77 dosa 5 g
+📌 Course completion is mandatory. all ok 77 dosa 5 g means tc intki pothunava tc 77gm
 
    *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
 
