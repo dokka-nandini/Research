@@ -1,4 +1,4 @@
-77 tc don't c pls 8 gn thinnava 7🚀 *Looking for Trained Fresher Profiles*
+77 tc don't c pls 8 gn thinnava  ok na tc 7🚀 *Looking for Trained Fresher Profiles*
 
 *Job Code: RN*
 
@@ -15,9 +15,9 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. all ok 77 dosa 5 g means tc intki pothunava tc 77gm
+📌 Course completion is mandatory. 
 
-   *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7 eu tc 77 thinnava
+   *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
 
 ⏰ The process will be closed today at 2:00 PM. Kindly share resumes before 2:00 PM.
 
@@ -29,7 +29,7 @@ combination ok. tc thinnava 🚀 *Hiring: Back-End Developer*
 
 📌 *Job Summary*
 
-Channelsoftech is looking for a skilled and motivated Back-End Developer to join our team. The ideal candidate will be responsible for designing, developing, and maintaining server-side applications, databases, and APIs that power our web solutions. You will collaborate closely with front-end developers and project teams to build scalable, secure, and high-performing applications.c R eu tc 77 8
+Channelsoftech is looking for a skilled and motivated Back-End Developer to join our team. The ideal candidate will be responsible for designing, developing, and maintaining server-side applications, databases, and APIs that power our web solutions. You will collaborate closely with front-end developers and project teams to build scalable, secure, and high-performing applications.
 
 ✅ *Key Requirements*
 
@@ -54,11 +54,7 @@ Channelsoftech is looking for a skilled and motivated Back-End Developer to join
 
 
 
-for this prepare prompt ChatGPT 8
 
-
-
-resume ahh no 2:45 train ok bye tc 7
 
 
 
