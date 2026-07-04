@@ -1,4 +1,4 @@
-  777 R. hello R🚀 *Looking for Trained Fresher Profiles*
+ok will be in atp tc 7 8 5 pray🚀 *Looking for Trained Fresher Profiles*
 
 *Job Code: RN*
 
