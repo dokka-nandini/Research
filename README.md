@@ -17,7 +17,7 @@ hello R🚀 *Looking for Trained Fresher Profiles*
 📌 Immediate joiners are preferred.
 📌 Course completion is mandatory. all ok 77 dosa 5 g means tc intki pothunava tc 77gm
 
-   *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
+   *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7 eu tc 77 thinnava
 
 ⏰ The process will be closed today at 2:00 PM. Kindly share resumes before 2:00 PM.
 
