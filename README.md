@@ -29,7 +29,7 @@ combination ok. tc thinnava 🚀 *Hiring: Back-End Developer*
 
 📌 *Job Summary*
 
-Channelsoftech is looking for a skilled and motivated Back-End Developer to join our team. The ideal candidate will be responsible for designing, developing, and maintaining server-side applications, databases, and APIs that power our web solutions. You will collaborate closely with front-end developers and project teams to build scalable, secure, and high-performing applications.
+Channelsoftech is looking for a skilled and motivated Back-End Developer to join our team. The ideal candidate will be responsible for designing, developing, and maintaining server-side applications, databases, and APIs that power our web solutions. You will collaborate closely with front-end developers and project teams to build scalable, secure, and high-performing applications.c R eu tc 77 8
 
 ✅ *Key Requirements*
 
