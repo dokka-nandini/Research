@@ -1,4 +1,4 @@
-ok will be in atp tc 7 8 5 pray🚀 *Looking for Trained Fresher Profiles*
+ok will be in atp tc 7 8 5 pray ok 77 gn tc 🚀 *Looking for Trained Fresher Profiles*
 
 *Job Code: RN*
 
