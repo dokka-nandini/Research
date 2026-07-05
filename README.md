@@ -1,4 +1,4 @@
-77 tc don't c pls 8 gn thinnava  ok na tc 7🚀 *Looking for Trained Fresher Profiles*
+🚀 *Looking for Trained Fresher Profiles*
 
 *Job Code: RN*
 
@@ -15,7 +15,7 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. ksr g in rs 8 
+📌 Course completion is mandatory. ksr g in rs 8 ok tc 87.  thinnava nenu ammamma intlo unna nenu na thammudu ok 77 8. after delete 
 
    *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
 
