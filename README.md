@@ -15,7 +15,7 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. thiffan thinna 7 8 water coming 8 8^2 tc if risk don't cm
+📌 Course completion is mandatory. thiffan avuna thinnu nanna pls 7 8 water coming pls dont cry same 8 8^2 tc if risk don't cm ok i msg only 20 min and than i am not reply tc pls thinnu health ok nenu chusa train deley undi after read msg here
    *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
 
 ⏰ The process will be closed today at 2:00 PM. Kindly share resumes before 2:00 PM.
@@ -28,7 +28,7 @@ combination 🚀 *Hiring: Back-End Developer*
 
 📌 *Job Summary*
 
-Channelsoftech is looking for a skilled and motivated Back-End Developer to join our team. The ideal candidate will be responsible for designing, developing, and maintaining server-side applications, databases, and APIs that power our web solutions. You will collaborate closely with front-end developers and project teams to build scalable, secure, and high-performing applications.
+Channelsoftech is looking for a skilled and motivated Back-End Developer to join our team. The ideal candidate will be responsible for designing, developing, and maintainingc  server-side applications, databases, and APIs that power our web solutions. You will collaborate closely with front-end developers and project teams to build scalable, secure, and high-performing applications.
 
 ✅ *Key Requirements*
 
