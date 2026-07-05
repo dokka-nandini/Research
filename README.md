@@ -15,7 +15,7 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. go and see place land tc 77 8 don't c pls 8
+📌 Course completion is mandatory. ksr g in rs 8 
 
    *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
 
