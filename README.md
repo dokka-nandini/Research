@@ -15,8 +15,7 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. train ati delay undi thinnava tc nanna sorry 
-88. R.  De
+📌 Course completion is mandatory. thiffan thinna 7 8 water coming 8 8^2 tc if risk don't cm
    *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
 
 ⏰ The process will be closed today at 2:00 PM. Kindly share resumes before 2:00 PM.
