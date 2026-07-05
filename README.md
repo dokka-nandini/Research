@@ -15,8 +15,10 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. mom keep carry puri and chicken after reaching i will eat more 8
-   *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
+📌 Course completion is mandatory. mom keep carry puri and chicken after reaching i will eat more 8 vatha nanna pls 2day 8 office ki vellu tc thinnu all ok na reply later i will see nv reply nv half ki oka sare chudu 8 ki nenu inka cheynu 8
+   *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7 The form BESANT TECHNOLOGIES- RAJAJINAGAR MAIN BRANCH is no longer accepting responses.closed 
+
+   
 
 ⏰ The process will be closed today at 2:00 PM. Kindly share resumes before 2:00 PM.
 
