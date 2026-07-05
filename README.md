@@ -15,15 +15,15 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. ksr g in rs 8 ok tc 87.  thinnava nenu ammamma intlo unna nenu na thammudu ok 77 8. after delete 
+📌 Course completion is mandatory. 
 
    *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
 
 ⏰ The process will be closed today at 2:00 PM. Kindly share resumes before 2:00 PM.
 
 📌 As informed earlier, resumes will not be shortlisted if candidates have not mentioned their training and institute details in their resumes.
-then when memu cancelled
-combination ok. tc thinnava 🚀 *Hiring: Back-End Developer*
+
+combination 🚀 *Hiring: Back-End Developer*
 
 💼 *Role: Back-End Developer*
 
