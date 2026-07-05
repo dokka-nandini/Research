@@ -15,7 +15,7 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory.  feeling like d 8
+📌 Course completion is mandatory.  feeling like d 8 sam8 tc eu ok na gn thinnu bye gn
    *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7 The form BESANT TECHNOLOGIES- RAJAJINAGAR MAIN BRANCH is no longer accepting responses.closed 
 
    
