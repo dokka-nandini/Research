@@ -15,7 +15,7 @@
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
-📌 Course completion is mandatory. thiffan avuna thinnu nanna pls 7 8 water coming pls dont cry same 8 8^2 tc if risk don't cm ok i msg only 20 min and than i am not reply tc pls thinnu health ok nenu chusa train deley undi after read msg here
+📌 Course completion is mandatory. mom keep carry puri and chicken after reaching i will eat more 8
    *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7
 
 ⏰ The process will be closed today at 2:00 PM. Kindly share resumes before 2:00 PM.
