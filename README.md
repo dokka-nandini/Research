@@ -30,7 +30,11 @@ combination 🚀 *Hiring: Back-End Developer*
 
 📌 *Job Summary*
 
-Channelsoftech is looking for a skilled and motivated Back-End Developer to join our team. The ideal candidate will be responsible for designing, developing, and maintainingc  server-side applications, databases, and APIs that power our web solutions. You will collaborate closely with front-end developers and project teams to build scalable, secure, and high-performing applications.
+Channelsoftech is looking for a skilled and motivated Back-End Developer to join our team. The ideal candidate will be responsible for designing, developing, and maintainingc  server-side applications, databases, and APIs that power our web solutions. You will collaborate closely with front-end developers and project teams to build scalable, secure, and high-performing applications.nenu niku chapu kada kani nv vinavu ok ur wish later u don't ask any thing ok really i am hurt. nenu Monday vastha nv ekkada ayyina undu ok 
+
+nv chepa mari nandu artham chesuko ani ok i can understand i will leave it 
+
+i will come later ok tq
 
 ✅ *Key Requirements*
 
