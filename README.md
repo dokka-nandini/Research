@@ -21,7 +21,7 @@ Bond- No
 *Job Code: RN*
 
 
-hlo 7
+hlo 7 8 paduko gn tc i will come 
 *Skills Required: Python, Java, SQL*
 
 *Role: Back-End Developer*
