@@ -16,7 +16,7 @@
 📌 Well-versed candidates with strong technical skills are required.
 📌 Immediate joiners are preferred.
 📌 Course completion is mandatory.  i don't know who is that
-   *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7 The form BESANT TECHNOLOGIES- RAJAJINAGAR MAIN BRANCH is no longer accepting responses.closed all ok na brain enti  undha chepu emi  tell what happened who is it i don't know all ok don't worry bye gn tc 
+   *Apply Here* - https://forms.gle/iujH78BaZxxEWPig7 The form BESANT TECHNOLOGIES- RAJAJINAGAR MAIN BRANCH is no longer accepting responses.closed i am sorry, 35k veyyandi ani adiga , intiki ra vestha anindi so vella , neku chepdham ani anukunna afternoon nundi nuvvu response ledhu andhukey call chesinappudu chrpdam anukuna sorry 
 https://youtube.com/shorts/lbrV-aY4ubg?si=knlMRGaqGpL7y10l work ok na i will pray in name of jesus Amen 
    
 
