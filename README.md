@@ -1,5 +1,18 @@
 🚀 *Looking for Trained Fresher Profiles*
 
+
+*@Bangalore Team Looking for trained Fresher Profiles*
+
+                          *Job code: 1215                          *Skill - *Java or Python*
+
+Role  :  *SW Engineer Intern*
+Qualification-  Any(Except Mech & Civil)
+Batch- 2024/2025/2026 (70% CGPA)
+Location-  Bangalore (Vasanth Nagar)
+Interview mode - F2F( Probably this week)
+CTC - 20K for 6 months, After that 4.5LPA BOP
+Bond- No
+
 *Job Code: RN*
 
 *Skills Required: Python, Java, SQL*
@@ -10,7 +23,9 @@
 *Location: Rajajinagar, Besant Technologies*
 *Interview Mode: Face-to-Face (F2F)*
 *Interview Date: June 1st (Monday)*
-*CTC: As per company standards (BOP)*
+*CTC: As per company standards (BOP)*. Swetha hr mam called me this week lo interview anta 
+
+i will attend mam anna
 
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
