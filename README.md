@@ -20,8 +20,7 @@ Bond- No
 
 *Job Code: RN*
 
-
-hlo 7 8 paduko gn tc i will come 
+8 ok mom not ok not good pray
 *Skills Required: Python, Java, SQL*
 
 *Role: Back-End Developer*
