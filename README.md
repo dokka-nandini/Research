@@ -21,6 +21,7 @@ Bond- No
 *Job Code: RN*
 
 8 ok mom not ok not good pray
+ok i will pray tc 87
 *Skills Required: Python, Java, SQL*
 
 *Role: Back-End Developer*
