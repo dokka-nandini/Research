@@ -32,7 +32,7 @@ hlo 7 8 paduko gn tc i will come
 *Interview Date: June 1st (Monday)*
 *CTC: As per company standards (BOP)*. Swetha hr mam called me this week lo interview anta 
 
-i will attend mam anna
+gm th eu ok na all tc 87
 
 📌 Candidates should have good communication skills.
 📌 Well-versed candidates with strong technical skills are required.
